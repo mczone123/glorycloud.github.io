@@ -1,1 +1,1 @@
-# glorycloud.github.io
+# glorycloud free minecraft server😱
